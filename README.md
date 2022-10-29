@@ -1,0 +1,1 @@
+# Rectificacion-media-Onda-Multisim-14.0
